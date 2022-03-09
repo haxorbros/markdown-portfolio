@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+💙 I love hacking 
+
+💔 I need to build my skills
